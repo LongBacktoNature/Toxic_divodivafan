@@ -1,7 +1,7 @@
 # Sự thật về "Hội divo, diva fan Việt Nam"
-
+<br>
 ###Về hiện tượng thanh nhạc dỏm. Cho đến hiện tại, toxic “Hội Divo, Diva Fan” đang nhân giống cực mạnh. Hết cà khịa blog này đến lăng mạ fanpage kia. 
-
+<br>
 Tôi chẳng thân thiết gì với tất cả bọn họ. 
 Tôi không thích drama với các bạn, cái tôi hướng đến là lẽ phải, dành cho những NGƯỜI MỚI, các bạn newbie. 
 Vì nếu để yên cho toxic lộng hành thì về lâu dài sẽ phá hoại thanh quản của người mới học nhạc. Nên tôi cần phải ...
@@ -15,6 +15,7 @@ Nên đừng cùn cãi mà tiếp tục chày cối, chửi bới với những 
 Tôi chỉ đích danh “Hội divo diva fan”, bao gồm dàn admin và một số fan cứng có hiệu ứng bầy đàn. Nhưng tôi không cãi ỏm tỏi như cái chợ với các bạn, tôi không đủ chuyên môn đấy. 
 Mời đọc kĩ bài viết.
 <br>
+<br>
 ##I. Hội Divo Diva Fan Việt Nam ?
 
 ##II. Các blog ?
@@ -24,6 +25,7 @@ Mời đọc kĩ bài viết.
 ##IV. Nguyên nhân drama ?
 
 ##V. Lời cuối cùng
+<br>
 Tôi thử lấy clone vào fanpage “hội divo diva fan” viết một comment trái quan điểm. Lời lẽ ôn hòa, nhưng mỗi tội nói lên sự thật. 
 Lập tức, một vị admin kính mến nào đấy vào chửi, lăng mạ, đe dọa các thứ, cộng thêm dàn con chiên ngoan nhảy vào cắn xé, rồi report sập acc, tốc độ còn nhanh hơn tốc độ checkpoint của facebook. 
 Sau cùng là bị xóa dấu vết, xóa sạch. Nên không có ai từ bên ngoài chọt chẹt vào nổi bến bãi của các bạn, họ chưa kịp mở mồm các bạn đã nhai đầu họ rồi.
