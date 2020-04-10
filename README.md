@@ -16,3 +16,18 @@ Mời đọc kĩ bài viết.
 <br>
 ## I. Hội Divo Diva Fan Việt Nam ?
 <br>Fanpage cuồng tứ đại diva Việt.
+## II. Các blog ?
+<br>
+## III. Và các fanpage tạm gọi là “đối thủ”:
+<br>
+## IV. Nguyên nhân drama ?
+<br>
+## V. Lời cuối cùng
+<br>
+Tôi thử lấy clone vào fanpage “hội divo diva fan” viết một comment trái quan điểm. Lời lẽ ôn hòa, nhưng mỗi tội nói lên sự thật. 
+Lập tức, một vị admin kính mến nào đấy vào chửi, lăng mạ, đe dọa các thứ, cộng thêm dàn con chiên ngoan nhảy vào cắn xé, rồi report sập acc, tốc độ còn nhanh hơn tốc độ checkpoint của facebook. 
+Sau cùng là bị xóa dấu vết, xóa sạch. Nên không có ai từ bên ngoài chọt chẹt vào nổi bến bãi của các bạn, họ chưa kịp mở mồm các bạn đã nhai đầu họ rồi.
+<br>
+##### Nhưng bài viết này, sẽ tồn tại nhan nhản. Chừng nào các bạn còn tạo thông tin nhảm sách nhiễu, phá game nền âm nhạc, chừng đó bài viết vẫn còn tồn tại để phá game các bạn.
+<br>
+####Và tôi THÁCH các bạn đánh sập được đấy.
