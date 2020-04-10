@@ -14,3 +14,5 @@ Nên đừng cùn cãi mà tiếp tục chày cối, chửi bới với những 
 Tôi chỉ đích danh “Hội divo diva fan”, bao gồm dàn admin và một số fan cứng có hiệu ứng bầy đàn. Nhưng tôi không cãi ỏm tỏi như cái chợ với các bạn, tôi không đủ chuyên môn đấy. 
 Mời đọc kĩ bài viết.
 <br>
+## I. Hội Divo Diva Fan Việt Nam ?
+<br>Fanpage cuồng tứ đại diva Việt.
