@@ -104,7 +104,7 @@ Các fanpage nhỏ vẫn biết khiêm tốn, biết tự nhìn nhận sai lệc
 Đây, các bạn tự nhìn nhận đi chứ tôi không có nghĩa vụ phải dạy dỗ các bạn. 
 Một fanpage nhỏ vào tường đặt câu hỏi thảo luận. Rõ ràng kiến thức của các bạn sai bét nhưng không tự nhận mình sai, mà đi xúc phạm lại người ta.
 <br>
-![fanpage](https://raw.githubusercontent.com/LongBacktoNature/Toxic_divodivafan/master/images/fanpage-healthy.png)
+![fanpage](https://lh3.googleusercontent.com/proxy/cIvxlryVMgPHEFuYLUWBcOkwFIyXxPWJrZOd46YXVU_ENGP-prEcPAMefK3_VMAQwckiIwPXbsoJ9p3L9rQFvxSjYVDEaIghU2h_Hc_v1q-LAa5UGDKUJY_0RR_5zfMtdRufHZpno1SI6wcNW3g_x-2RVWwIg9LqW6z9)
 <br>
 Nếu như còn chút liêm sỉ, các bạn nên ngừng đi chứ đừng tiếp tục cùn cối hỏi ngược lại rằng “tao sai ở chỗ nào”, nhé.
 <br>
