@@ -49,7 +49,8 @@ Tuy nhiên các bạn lại thích định nghĩa support theo “sở thích”
 Không biết trường lớp nào dạy các bạn thành ra thế này ? Mà nếu tôi đoán không lầm thì các bạn luôn lăng mạ những kênh khác, luận điểm cho rằng “bọn mày chưa đủ tuổi, chưa học hết cấp 3 thì biết gì mà nói”. Vậy tôi xin mạn phép mời các bạn trình ra bằng cấp thanh nhạc. Theo đúng cái logic mà các bạn chửi những người khác.
 <br>
 <br>
-Bằng cấp đâu nào ? Cho mọi người mở mang tầm mắt đi chứ ? Tôi thử bấm theo dõi và lội nát fanpage, vẫn chưa tìm ra một mẩu bằng cấp chứng chỉ thanh nhạc nào của các bạn, hay chí ít cũng là thẻ sinh viên, cảnh học nhạc trong trường… Thế thì “hội diva divo fan” các bạn khác gì các kênh kia ?
+Bằng cấp đâu nào ? Cho mọi người mở mang tầm mắt đi chứ ? Tôi thử bấm theo dõi và lội nát fanpage, vẫn chưa tìm ra một mẩu bằng cấp chứng chỉ thanh nhạc nào của các bạn, hay chí ít cũng là thẻ sinh viên, cảnh học nhạc trong trường… 
+Thế thì “<b>hội diva divo fan</b>” các bạn khác gì các kênh kia ?
 <br>
 <br>
 Support không phải là cái gì ghê gớm cả, chính các bạn từng nói vậy. Ai cũng có thể làm được, khả thi. Nhưng, 
@@ -57,6 +58,117 @@ Support không phải là cái gì ghê gớm cả, chính các bạn từng nó
   support đòi hỏi quá trình luyện thanh cơ bản, ít nhất là vài ngày luyện: cảm âm, nén hơi, làm bài tập… thì mới làm được.
 </i>
 Không có chuyện xuất thần 1 khoảnh khắc mà support được ngay. Support không phải là cuốn bí kíp hay mã gifcode game, càng không phải bó rau ngoài chợ mà muốn có là có, cứ hát to lên là có.
+<br>
+<br>
+Chiếu theo tiêu chí của các bạn, âm thanh phải khỏe khoắn, phải vang, phải relax thì là support ? Thế tôi ra chợ, uống ngụm “bổ phế chỉ khái lộ” và gào thật to, thật vang, thật relax rồi tôi có support luôn hả ?
+<br>
+Vậy các nốt trầm xét support như nào đây, khi yếu tố TO & VANG chưa có ở nốt trầm (dùng micro xịn thì may ra). Hay hát trầm cho thật relax thì là support, ủa thì thầm trong giờ thi cũng là support luôn nhỉ ?
+<br>
+<br>
+Ca sĩ hát light mix với âm thanh nhẹ nhàng, trong trẻo, nhưng âm lượng nhỏ và không vang, vậy cho hỏi ca sĩ đó cùi bắp vì không biết support ?
+<br>
+Ca sĩ opera dùng chest dominant belting các đoạn kịch tính cho âm lượng rất to, đanh, và dĩ nhiên họ mất rất nhiều sức lực, có thể sẽ gồng một vài cơ, gân cổ. Vậy là opera đếch support được đúng không ? Vì làm quái gì relax đâu mà đòi support ?
+<br>
+<br>
+Tôi không có hứng thú ở đây dạy dỗ các bạn, hay nói thẳng ra tôi không ưa động diva fan các bạn. Nhưng câu này tôi cần phải đưa ra, để newbie đọc và phân biệt. 
+<br>
+<b>
+Dù là opera hay trong pop, bolero hay bất cứ dòng nhạc nào, các yếu tố cấu thành support không đổi. Nên không có chuyện support trong opera là thế này, còn support trong pop là thế kia.</b>
+<br>
+Support mỗi dòng nhạc khác nhau là định nghĩa tầm bậy của động “diva fan” nặn ra, chứ không có giáo trình chính thống nào định nghĩa đa dạng support cả.
+<br>
+<br>
+Thứ 2, các bạn phân loại giọng hát ca sĩ cũng sai bét. Thà đừng phân loại, còn hơn đã làm sai mà vẫn lớn lối đăng lên kênh thông tin lớn như thế. Đây, tấm hình này là sản phẩm của các bạn, lối ăn nói đặc trưng không lẫn vào đâu được. Biết đâu sau này có xóa/edit lại, nên mới cần tấm hình làm bằng chứng.
+<br>
+<p>
+    <img src="https://github.com/LongBacktoNature/Toxic_divodivafan/blob/master/images/jpg/leggiero.jpg?raw=true" />
+</p>
+“YẾU ĐIỂM”, cái quái gì thế ?
+<br>
+Tôi không rõ bằng cấp của các bạn là Cao Học, Đại Học, hay là Xạo Học, nhưng dùng từ sai bét thế này thì nói ai nghe ? Thời cấp 2 các bạn có được dạy về từ này chưa ? Chuẩn bị có người edit bài đó rồi, nhiệm vụ của tôi cũng không phải là giảng bài ngữ văn…
+<br>
+Các bạn ngang nhiên phán Bằng Kiều là Leggiero Tenor nhưng các bạn KHÔNG hề biết giọng Bằng Kiều thuộc phân loại nào. 
+Bằng Kiều là giọng tenor thuộc phân loại Lyric, và cho dù có mỏng, nhẹ, mái đi nữa, cũng không thể là một Leggiero Tenor thuần được. 
+Vẫn thuộc Lyric mà thôi, cùng lắm là Lirico Leggiero (mà chất Leggiero ít hơn). 
+<br>
+Passagio của Bằng Kiều, có nói ra các bạn cũng cóc hiểu.
+<br>
+<br>
+Còn đây nữa: Đông Nhi là Mezzo Soprano ? Tôi rất cần một ai đó trong showbiz hoặc nhạc viện đính chính điều này, để <b>động diva fan</b> các bạn bớt gáy đi.
+<br>
+<p>
+    <img src="https://github.com/LongBacktoNature/Toxic_divodivafan/blob/master/images/jpg/Nhi-mezzo.jpg?raw=true" />
+</p>
+
+Mặc dù tôi biết thừa sau khi “hội diva divo fan” biết mình sai, các bạn ngay lập tức xóa phốt. 
+Tôi chẳng thèm đợi điều đó để làm bằng chứng cãi nhau kiểu chợ búa với các bạn, tôi chỉ mong điều đó giúp những bạn đọc mới hiểu ra vấn đề và dừng ngay việc đú theo “hội diva divo fan” như những con cừu non.
+<br>
+<br>
+Nhưng điều khủng khiếp hơn, là cái mà tôi ngán nhất, đó là việc các bạn không phân biệt nổi dấu hiệu <b>high larynx/low larynx</b>. 
+Cộng thêm ảo tưởng ban đầu về support, các bạn cũng phán <i>Sơn Tùng M-TP biết support, mà còn support đến A4</i> (kinh hồn chưa ?).
+ <br>
+<p>
+    <img src="https://github.com/LongBacktoNature/Toxic_divodivafan/blob/master/images/jpg/M-TP.jpg?raw=true" />
+</p>
+Nói có sách mách có chứng, tôi dẫn ra ngay lời văn “đặc sản” của các bạn đây.
+<br>
+<br>
+Để tránh bị vặn vẹo kiểu cãi cùn, tôi đính chính lại thời điểm bài viết được nặn ra, là năm 2019, Sơn Tùng M-TP không biết support giọng hát. Sự thật là như thế. Tôi không dám chắc từ sau bài viết này các bạn có edit bài viết theo hướng có lợi, hay là bản thân Sơn Tùng sẽ biết support, hay là gì đi nữa, thì sự thật vẫn vậy: Kiến thức của các bạn sai ngay từ nền móng.
+<br>
+<br>
+Tôi không dìm Sơn Tùng, anh ta rất tài năng. Nhưng để đánh giá công tâm về kĩ thuật thanh nhạc, làm ơn dẹp bỏ những thứ bên lề, dùng lỗ tai mà đánh giá cho chuẩn, đừng thấy ai đó hát “hay hay” hoặc “vang vang” chút là chấm họ supported.
+<br>
+<br>
+Còn 1 cái rất bựa: các bạn thường đo sai nốt nhạc, nhưng khi có người phát hiện ra thì lập tức bị xóa sạch. 
+Nhưng các bạn đã quên xóa đoạn này:
+<p>
+    <img src="https://github.com/LongBacktoNature/Toxic_divodivafan/blob/master/images/jpg/G-4=E.jpg?raw=true" />
+</p>
+<b>Đỉnh cao: tông E thấp hơn tông G một khoảng là... 4 tông.</b>
+<br>
+Đo nốt nhạc cũng sai thì đống "kiến thức" của động <b>diva divo fan</b> các bạn lởm cỡ nào ?
+<br>
+<br>
+Trong đống “tư liệu” của các bạn, cứ ai hát to, nghe sướng lỗ tai lập tức các bạn tung hê họ lên mây, full resonance các thứ, trong khi bản chất các định nghĩa đó các bạn còn chẳng hiểu nó là gì.
+<br>
+<br>
+Chẳng ai cấm các bạn cuồng idol. Tôi cũng cuồng CR7, cuồng Donald Trump. Nhưng idol của tôi lắm tật xấu, thì tôi không bênh. Các bạn nên tôn trọng sự thật và tôn trọng chính idol của các bạn đi. Cuồng cho lắm vào người ta đánh giá thấp cả idol luôn đấy. Nhìn Sơn Tùng mà xem, đâu có ai chê thái độ của Sơn Tùng, mà người ta sẵn sàng cancel không hợp tác chỉ vì “sky” quá đông và hung hãn. 
+<br>
+<br>
+<ul>
+    <li>Sự thật là: Sơn Tùng bị high larynx từ rất sớm, không biết cách support.</li>
+    <li>Sự thật là: Hương Hồ (chị Hồ Quỳnh Hương) khi lên cao hơn nốt nhạc A#4 đã high larynx, tương tự với chị Hồng Nhung, nên support range của 2 người chỉ đến đó mà thôi.</li>
+    <li>Sự thật là, Bùi Anh Tuấn chỉ có thể support đầy đặn trong quãng passagio của anh mà thôi. Ra khỏi passagio, BAT rất dễ drop support và vướng nhiều lỗi quan trọng. Cho dù BAT có từng support được F4 đi nữa, hiện tại BAT đã hỏng giọng và mất phong độ như thời The Voice 2012 vĩnh viễn.</li>
+    <li>Sự thật là, Mỹ Tâm có trình độ thanh nhạc rất phát triển, vì chị chuyên tâm nâng cao đồng đều các kĩ năng, cũng như giọng hát support ổn định, đầy đặn, resonance xuất hiện nhiều và mạnh mẽ.</li>
+</ul>
+Nghe nói đời tư của Mỹ Tâm cũng rất xứng đáng với cái tên. Mà chỉ vì ghét fan cuồng Mỹ Tâm, tôi nhắc lại là bọn fan cuồng, thì “diva divo fan” các bạn nói xấu, dìm hàng, thậm chí chửi bới và xuyên tạc về Mỹ Tâm. Đó gọi là ti tiện đấy các bạn à.
+<br>
+<br>
+Tung hê thần tượng chưa đủ, các bạn sinh ra đủ thứ thuật ngữ, tiêu chí quái dị. Lôi mixed note cao nhất ra để đánh giá kĩ thuật của ca sĩ. Đỉnh cao thật. Các bạn luôn mồm chê Mỹ Tâm thua Hà Hồ (chị Hồ Ngọc Hà) chỉ vì Mỹ Tâm mix đến F5, còn Hà Hồ là… G#5.
+<br>
+Ủa nếu thế thì tôi đánh giá Bùi Anh Tuấn giỏi hơn Võ Hạ Trâm, giỏi hơn Dương Hoàng Yến à ? Vì Tuấn mix đến tận A5 còn 2 người kia chỉ lên đến F#5/G5. Nghe thơm quá phải không ?
+<br>
+<br>
+Tự hào về âm nhạc nước nhà là tốt, nhưng đừng có cuồng mà đi dìm hàng và nói xấu nước ngoài. Các bạn đang nói tiếng Việt đấy, sống cho có văn hóa đi.
+<br>
+<br>
+Việt Nam với nền kinh tế trung bình mà đã có mặt bằng kĩ thuật thanh nhạc ổn, phát triển đến hôm nay là rất đáng tự hào rồi. Còn ở Hàn Quốc, lĩnh vực thanh nhạc của họ đặc biệt tiến bộ, kĩ thuật thanh nhạc như một môn mà mọi ca sĩ đều hướng tới và trau dồi, chứ không chỉ dành riêng dân thính phòng như ở Việt Nam.
+<br>
+<br>
+Tôi không quan tâm xứ Hàn sống lỗi hay bê bối ra sao. Riêng về kĩ thuật thanh nhạc thuần túy, xứ ta còn phải học hỏi họ. Giống như lý thuyết về opera phải học hỏi nước Ý, công nghệ phải học tập Đức và Nga, kĩ thuật làm hàng fake phải học hỏi Tung Của.
+<br>
+Nhưng thay vì học hỏi họ, các bạn lại sân si, ganh ghét và dìm hàng họ, rồi tự tâng bốc ca sĩ trong nước lên tận mây.  
+<br>
+Sao các bạn trẻ ranh vậy ?
+<br>
+<br>
+Tôi không muốn quan tâm các bạn bày trò gì, nhưng đừng có làm lệch lạc kiến thức và làm hại đến các newbie mới học thanh nhạc. Họ học trên mạng chứ không có điều kiện học chính thống. Thay vì để yên cho newbie luyện thanh từ từ theo mẫu, các bạn cho họ ăn bánh vẽ về “mix cao như Bùi Anh Tuấn, hát to như các mợ diva”, và vô tình khiến họ luyện thanh sai bét.
+<br>
+<br>
+Các bạn cổ vũ cho newbie gào to theo kiểu sướng tai, khiến các newbie thẩm du tư tưởng giống y như nhau. Các bạn có chịu trách nhiệm khi cổ họng và thanh quản người ta bị tổn thất không ? Hát sai kĩ thuật, gào tú, giọng không nát ngay lập tức, mà nó tàn phá từ từ. 
+<br>
+<br>
+Trường hợp tổn thương giọng hát thì nhiều ví dụ lắm. Tiêu biểu là Bùi Anh Tuấn có stamina ổn, và NÊN NHỚ RẰNG Bùi Anh Tuấn có kĩ thuật nền vững chắc. Nghe fan cuồng tung hê quá, đi hát leo toàn quãng 5, và giọng đã hỏng dần dần sau 5 năm. Thì mấy cái cổ họng yếu nhớt của các bạn newbie liệu chịu đựng được bao lâu ?
 <br>
 
 ## II. Các blog ?
@@ -66,7 +178,8 @@ Các web này đều dùng nền tảng blogspot hoặc wordpress khá cũ kĩ, 
 Nhìn chung họ rất ít tương tác, và nếu có tương tác, họ toàn hỏi đáp về thanh nhạc thuần túy, không quan tâm gì đến “thế sự”. 
 <br>
 <br>
-Họ đánh giá rất công bằng. Tạm bỏ qua blog kpop, chỉ đề cập đến các bài viết analysis ca sĩ Việt. Ghi nhận vocal range rất rộng của 4 diva Việt (và nhiều ca sĩ khác nữa), cách đánh giá của họ đặc biệt công bằng ở chỗ: đánh giá chung thì lấy tư liệu hiện hành; còn thông tin cố định về support range thì lấy chính xác ở tất cả các giai đoạn, nói đầy đủ thế mạnh-thế yếu, ghi chú cả thời prime và lấy thông tin thời prime nếu cần. 
+Họ đánh giá rất công bằng. Tạm bỏ qua blog kpop, chỉ đề cập đến các bài viết analysis ca sĩ Việt. 
+Ghi nhận vocal range rất rộng của 4 diva Việt (và nhiều ca sĩ khác nữa), cách đánh giá của họ đặc biệt công bằng ở chỗ: đánh giá chung thì lấy tư liệu hiện hành; còn thông tin cố định về support range thì lấy chính xác ở tất cả các giai đoạn, nói đầy đủ thế mạnh-thế yếu, ghi chú cả thời prime và lấy thông tin thời prime nếu cần. 
 <br>
 <br>
 Và về sự công tâm, các bạn mải miết chửi bới mà đã bỏ quên bài analysis divo Tùng Dương. 
@@ -74,7 +187,10 @@ Ca sĩ này được mọi blog đánh giá rất cao và được mổ xẻ v�
 Thậm chí họ còn update thêm thông tin ngay khi Tùng Dương luyện tập đạt được kĩ năng mới tiến bộ hơn. Rõ ràng những blog đấy không dìm Tùng Dương, hay Thùy Chi, Tuấn Hà.
 <br>
 <br>
-Họ không cư xử kiểu rẻ rách, nên hiếm có tình trạng cãi cùn-đuối lý-xóa bài. (tôi chưa tìm ra nên tôi tạm ghi là Cực Hiếm). Toàn là toxic vào đấy gân hấn, cãi không lại rồi cụp đuôi chuồn mất. Các bạn cần thị dâm thì lên đấy xem thoải mái. Tôi không nói điêu, mọi thứ vẫn còn chình ình.
+Không ai là hoàn hảo, họ làm việc vẫn có sai sót, nhưng họ sẵn sàng lắng nghe và đính chính chứ đâu có thường chơi trò xóa dấu vết như mấy anh biến thái xem Porn rồi xóa lịch sử ?
+<br>
+Họ không cư xử kiểu rẻ rách, nên càng hiếm có tình trạng <i>cãi cùn - đuối lý - xóa bài.</i> 
+(tôi chưa tìm ra nên tôi tạm ghi là <b>cực hiếm</b>). Toàn các toxic vào đấy gân hấn, cãi không lại rồi cụp đuôi chuồn mất. Các bạn cần thị dâm thì lên đấy xem thoải mái. Tôi không nói điêu, mọi thứ vẫn còn chình ình.
 <br>
 <br>
 Các tác giả làm blog thẳng thắn thừa nhận điểm yếu về kĩ thuật thanh nhạc của nhiều ca sĩ có trình độ cao, kể cả 4 diva Việt. Nhưng họ đánh giá toàn diện: điểm mạnh, điểm yếu, có sao nói nấy. Thế thì tôi không hiểu các bạn thù ghét họ vì lý do gì ? Các bạn chụp mũ họ dìm hàng idol của các bạn. Tôi lại thấy các bạn chụp mũ họ thì đúng hơn.
@@ -83,7 +199,14 @@ Các tác giả làm blog thẳng thắn thừa nhận điểm yếu về kĩ th
 Về các rank xếp hạng. Tôi không luyên thuyên chi tiết, chỉ biết họ bê toàn bộ chỉ tiêu từ kpop sang. Mà các chỉ tiêu đó đã đánh giá đầy đủ kĩ thuật thanh nhạc của ca sĩ Hàn, tốt có, kém có, trên đủ hạng mục. 
 <br>
 <br>
-Bê nguyên si sang thì đúng là có phiến diện, nhưng thay vì đóng góp cho họ xem xét lại một cách văn minh, thì các bạn dùng lời lẽ vô văn hóa. Cụ thể như thế nào thì các bạn là tác giả những câu chửi, các bạn tự soi gương lấy. Tôi không biết thuở ban đầu các blog kia có nói xấu gì ca sĩ Việt hay chê bai gì chưa, nhưng tôi nghĩ nếu có thật thì các bạn đã chớp lấy và tổng sỉ vả họ rồi.
+Bê nguyên si sang thì đúng là có phiến diện, nhưng thay vì đóng góp cho họ xem xét lại một cách văn minh, thì các bạn dùng lời lẽ vô văn hóa. Cụ thể như thế nào thì các bạn là tác giả những câu chửi, các bạn tự soi gương lấy. 
+<br>Tôi không "tha" những lời lẽ bẩn thỉu ấy lên đây, tôi chỉ dẫn ra bài gốc:
+<br>
+<p>
+    <img src="https://github.com/LongBacktoNature/Toxic_divodivafan/blob/master/images/jpg/common.jpg?raw=true" />
+</p>
+<br>
+Tôi không biết thuở ban đầu các blog kia có nói xấu gì ca sĩ Việt hay chê bai gì chưa, nhưng tôi nghĩ nếu có thật thì các bạn đã chớp lấy và tổng sỉ vả họ rồi.
 <br>
 <br>
 Tôi thậm chí còn khá nể họ ở chỗ, họ lục rất kĩ các video và tìm được những khoảnh khắc đạt resonance của các diva Việt. Người viết blog rất tôn trọng các “mợ diva” khi bỏ công tìm kiếm và công nhận tài năng của diva như vậy. 
@@ -120,10 +243,11 @@ Các fanpage nhỏ vẫn biết khiêm tốn, biết tự nhìn nhận sai lệc
 <br>
 <br>
 Đây, các bạn tự nhìn nhận đi chứ tôi không có nghĩa vụ phải dạy dỗ các bạn. 
-Một fanpage nhỏ vào tường đặt câu hỏi thảo luận. Rõ ràng kiến thức của các bạn sai bét nhưng không tự nhận mình sai, mà đi xúc phạm lại người ta.
+Một fanpage nhỏ vào <b>"động diva fan"</b> đặt câu hỏi thảo luận. Rõ ràng kiến thức của các bạn sai bét nhưng không tự nhận mình sai, mà đi xúc phạm lại người ta.
 <br>
-![fanpage](/images/jpg/fanpage-healthy.jpg)
-<br>
+<p>
+    <img src="https://github.com/LongBacktoNature/Toxic_divodivafan/blob/master/images/jpg/fanpage-healthy.jpg?raw=true" />
+</p>
 Nếu như còn chút liêm sỉ, các bạn nên ngừng đi chứ đừng tiếp tục cùn cối hỏi ngược lại rằng “tao sai ở chỗ nào”, nhé.
 <br>
 
@@ -148,11 +272,11 @@ Mà tôi thấy rất buồn cười. Cứ cho là họ toàn học sinh, còn n
 <br>
 Thêm một trò mèo này nữa, các bạn tự soi gương lại bản thân nhé. Cãi không lại người ta nên chui vào kênh của trường người ta, mà mách, giống ynhững đứa con nít chơi ô ăn quan thua cay cú nằm lăn ra ăn vạ.
 <br>
-![reportToxic](/images/jpg/report-toxic.jpg)
+<p>
+    <img src="https://github.com/LongBacktoNature/Toxic_divodivafan/blob/master/images/jpg/report-toxic.jpg?raw=true" />
+</p>
 <br>
 Dĩ nhiên các bạn sẽ chày cối, chối bay chối biến, rồi chụp mũ tôi là clone của thằng đấy. Tôi chẳng thèm cãi, vì trò này của các bạn bày ra mà, có chày cối đến đâu thì sự thật vẫn sờ sờ đó.
-<br>
-![common](/images/jpg/common.jpg)
 <br>
 
 ## V. Lời cuối cùng
@@ -162,7 +286,9 @@ Lập tức, một vị admin kính mến nào đấy vào chửi, lăng mạ, �
 Sau cùng là bị xóa dấu vết, xóa sạch. Nên không có ai từ bên ngoài chọt chẹt vào nổi bến bãi của các bạn, họ chưa kịp mở mồm các bạn đã nhai đầu họ rồi.
 <br>
 
-** Nhưng bài viết này, sẽ tồn tại nhan nhản. Chừng nào các bạn còn tạo thông tin nhảm sách nhiễu, phá game nền âm nhạc, chừng đó bài viết vẫn còn tồn tại để phá game các bạn. **
+<b>Nhưng bài viết này, sẽ tồn tại nhan nhản. 
+Chừng nào các bạn còn tạo thông tin nhảm sách nhiễu, phá game nền âm nhạc, chừng đó bài viết vẫn còn tồn tại để phá game các bạn.
+</b>
 <br>
 
 ####Và tôi THÁCH các bạn đánh sập được đấy.
