@@ -40,7 +40,19 @@ Support còn được bổ sung bằng nhiều yếu tố khác như soft palate
 <p align="center">
   <img src="https://raw.githubusercontent.com/LongBacktoNature/Toxic_divodivafan/master/images/jpg/support.jpg" title="support toxic">
 </p>
-
+<br>
+Tuy nhiên các bạn lại thích định nghĩa support theo “sở thích” của các bạn. Cái này tôi chụp lại từ chính bình luận của các bạn gáy trên fanpage, chứ tôi không đủ trình fake một chữ nào. 
+<br>
+<br>
+Không biết trường lớp nào dạy các bạn thành ra thế này ? Mà nếu tôi đoán không lầm thì các bạn luôn lăng mạ những kênh khác, luận điểm cho rằng “bọn mày chưa đủ tuổi, chưa học hết cấp 3 thì biết gì mà nói”. Vậy tôi xin mạn phép mời các bạn trình ra bằng cấp thanh nhạc. Theo đúng cái logic mà các bạn chửi những người khác.
+<br>
+<br>
+Bằng cấp đâu nào ? Cho mọi người mở mang tầm mắt đi chứ ? Tôi thử bấm theo dõi và lội nát fanpage, vẫn chưa tìm ra một mẩu bằng cấp chứng chỉ thanh nhạc nào của các bạn, hay chí ít cũng là thẻ sinh viên, cảnh học nhạc trong trường… Thế thì “hội diva divo fan” các bạn khác gì các kênh kia ?
+<br>
+<br>
+Support không phải là cái gì ghê gớm cả, chính các bạn từng nói vậy. Ai cũng có thể làm được, khả thi. Nhưng, support đòi hỏi quá trình luyện thanh cơ bản, ít nhất là vài ngày luyện: cảm âm, nén hơi, làm bài tập… thì mới làm được. Không có chuyện xuất thần 1 khoảnh khắc mà support được ngay.
+<br>
+Chứ support không phải là cuốn bí kíp hay mã gifcode game, càng không phải bó rau ngoài chợ mà muốn có là có, cứ hát to lên là có.
 <br>
 
 ## II. Các blog ?
@@ -78,7 +90,7 @@ Có thể tôi cho họ là mọt sách. Về truyền thông, bầy đàn, mồ
 À mà về trình độ, tôi cũng không dám khen họ cao siêu, chỉ nhận thấy họ nghe nốt nhạc rất chuẩn và đánh giá các lỗi kĩ thuật cũng như ưu khuyết điểm cũng rất chuẩn.
 <br>
 <br>
-Một điều quan trọng khi newbie đọc các blog đó: những khuyết điểm về kĩ thuật của ca sĩ. Khi kĩ thuật của ca sĩ mà họ đã đánh giá bị mất phong độ, họ rất chịu khó theo dõi và update lại, kèm theo những ghi chú có giá trị. 
+Một điều quan trọng khi newbie đọc các blog đó: những khuyết điểm về kĩ thuật của ca sĩ. Khi kĩ thuật của ca sĩ nào mà họ đã đánh giá bị mất phong độ, họ rất chịu khó theo dõi và update lại, kèm theo những ghi chú có giá trị. 
 Tôi không dám chắc họ có âm mưu dìm hàng ca sĩ nào chưa, nhưng các thông tin này rất có lợi cho newbie khi luyện tập. 
 Cả những người biểu diễn ca hát nghiệp dư cũng cần và nên trau dồi.
 <br>
