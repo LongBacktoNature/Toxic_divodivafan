@@ -38,9 +38,9 @@ Support còn được bổ sung bằng nhiều yếu tố khác như soft palate
 <br>
 Tuy nhiên các bạn lại thích định nghĩa support theo “sở thích” của các bạn. Cái này tôi chụp lại từ chính bình luận của các bạn gáy trên fanpage, chứ tôi không đủ trình thêm bớt một chữ nào. 
 <br>
-![support](https://raw.github.com/LongBacktoNature/Toxic_divodivafan/master/images/jpg/support.jpg)
+![support](https://github.com/LongBacktoNature/Toxic_divodivafan/blob/master/images/jpg/support.jpg?raw=true "support")
 <br>
-![Markdown Here logo](https://raw.github.com/adam-p/markdown-here/master/src/common/images/icon48.png)
+![Markdown Here logo](https://raw.github.com/adam-p/markdown-here/master/src/common/images/icon48.png "logo git")
 <br>
 
 ## II. Các blog ?
