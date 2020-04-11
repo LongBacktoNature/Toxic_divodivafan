@@ -134,7 +134,7 @@ Thêm một trò mèo này nữa, các bạn tự soi gương lại bản thân 
 <br>
 Dĩ nhiên các bạn sẽ chày cối, chối bay chối biến, rồi chụp mũ tôi là clone của thằng đấy. Tôi chẳng thèm cãi, vì trò này của các bạn bày ra mà, có chày cối đến đâu thì sự thật vẫn sờ sờ đó.
 <br>
-![common](https://raw.githubusercontent.com/LongBacktoNature/Toxic_divodivafan/master/images/common.png)
+![common](https://pbs.twimg.com/media/EVTDedLVAAA3iYB?format=jpg)
 <br>
 
 ## V. Lời cuối cùng
