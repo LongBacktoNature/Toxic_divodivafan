@@ -19,9 +19,11 @@ Mời đọc kĩ bài viết.
 Dạo facebook vài vòng, quanh quẩn fanpage “Hội divo, diva fan” chủ yếu cuồng và tâng bốc tứ đại diva Việt, và các “mợ diva nước ngoài” theo đúng mĩ từ của chính fanpage này thường biểu cảm.
 <br>
 Ồ, các diva giỏi, họ đóng góp nhiều cho nền âm nhạc nước nhà, cho thế giới. Tất nhiên fan cuồng phải đông rồi. Các bạn hoàn toàn có quyền hâm mộ họ, tâng bốc họ. 
-Nhưng, các bạn phải hiểu rằng, sự thật vẫn là sự thật. Chuyên môn của các diva Việt đến đâu ? Tôi chưa bàn đến ở đây, phần sau sẽ nhắc đến. 
-Cái trọng tâm cần nói đến là từ chỗ cuồng thần tượng, các bạn tự nghĩ ra định nghĩa thanh nhạc vô cùng cao siêu. 
-Và khiến bao nhiêu con chiên nhảy vào thẩm du tư tưởng theo, một cách mù quáng. Dăm ba thông tin rác rưởi đấy chưa đủ để C50 cử quân triều đình bế các fanpage đi, nên các bạn ngày càng lộng hành.
+Nhưng, các bạn phải hiểu rằng, chuyên môn của 4 diva Việt đến đâu ? Tôi chưa bàn đến ở đây, phần sau sẽ nhắc đến. 
+Cái trọng tâm cần nói đến là từ chỗ cuồng thần tượng, các bạn tự nghĩ ra định nghĩa thanh nhạc rất "cao siêu". 
+Và khiến bao nhiêu con chiên nhảy vào thẩm du tư tưởng theo, một cách mù quáng.
+<br>
+Dăm ba thông tin rác rưởi đấy chưa đủ để C50 cử quân triều đình bế các fanpage đi, nên các bạn ngày càng lộng hành. Nếu họ làm căng thì tôi đỡ mất công phải viết bài này.
 <br>
 <br>
 Có thể fanpage các bạn đã lớn mạnh nhờ “bú fame” thần tượng. 
@@ -50,9 +52,11 @@ Không biết trường lớp nào dạy các bạn thành ra thế này ? Mà n
 Bằng cấp đâu nào ? Cho mọi người mở mang tầm mắt đi chứ ? Tôi thử bấm theo dõi và lội nát fanpage, vẫn chưa tìm ra một mẩu bằng cấp chứng chỉ thanh nhạc nào của các bạn, hay chí ít cũng là thẻ sinh viên, cảnh học nhạc trong trường… Thế thì “hội diva divo fan” các bạn khác gì các kênh kia ?
 <br>
 <br>
-Support không phải là cái gì ghê gớm cả, chính các bạn từng nói vậy. Ai cũng có thể làm được, khả thi. Nhưng, support đòi hỏi quá trình luyện thanh cơ bản, ít nhất là vài ngày luyện: cảm âm, nén hơi, làm bài tập… thì mới làm được. Không có chuyện xuất thần 1 khoảnh khắc mà support được ngay.
-<br>
-Chứ support không phải là cuốn bí kíp hay mã gifcode game, càng không phải bó rau ngoài chợ mà muốn có là có, cứ hát to lên là có.
+Support không phải là cái gì ghê gớm cả, chính các bạn từng nói vậy. Ai cũng có thể làm được, khả thi. Nhưng, 
+<i>
+  support đòi hỏi quá trình luyện thanh cơ bản, ít nhất là vài ngày luyện: cảm âm, nén hơi, làm bài tập… thì mới làm được.
+</i>
+Không có chuyện xuất thần 1 khoảnh khắc mà support được ngay. Support không phải là cuốn bí kíp hay mã gifcode game, càng không phải bó rau ngoài chợ mà muốn có là có, cứ hát to lên là có.
 <br>
 
 ## II. Các blog ?
