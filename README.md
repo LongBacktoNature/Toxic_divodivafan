@@ -36,17 +36,11 @@ Ta còn nhận biết support qua độ mở và chính các yếu tố cấu th
 Support còn được bổ sung bằng nhiều yếu tố khác như soft palate, open pharynx, vocal projection... để làm đầy đặn nền support, hoặc tạo resonance, nhưng về cơ bản vẫn nhận biết qua 3 yếu tố vừa nêu.
 <br>
 <br>
-```
+
 <p align="center">
   <img src="https://raw.githubusercontent.com/LongBacktoNature/Toxic_divodivafan/master/images/jpg/support.jpg" title="support toxic">
 </p>
-```
-![ASSESSMENT](https://4.bp.blogspot.com/-slH_T0N2M1A/WhQcy53Ve7I/AAAAAAAADKw/mWINXv7KRhs8DJNT_7ko9TShZyVAzTYqQCLcBGAs/s400/Tran%2BThu%2BHa.png "Rank B-")
-<br>
-![support toxic](https://raw.githubusercontent.com/LongBacktoNature/Toxic_divodivafan/master/images/jpg/support.jpg)
-Tuy nhiên các bạn lại thích định nghĩa support theo “sở thích” của các bạn. Cái này tôi chụp lại từ chính bình luận của các bạn gáy trên fanpage, chứ tôi không đủ trình thêm bớt một chữ nào. 
-<br>
-![Markdown Here logo](https://raw.github.com/adam-p/markdown-here/master/src/common/images/icon48.png "logo git")
+
 <br>
 
 ## II. Các blog ?
