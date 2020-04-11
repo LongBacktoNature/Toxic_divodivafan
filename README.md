@@ -38,7 +38,7 @@ Support còn được bổ sung bằng nhiều yếu tố khác như soft palate
 <br>
 Tuy nhiên các bạn lại thích định nghĩa support theo “sở thích” của các bạn. Cái này tôi chụp lại từ chính bình luận của các bạn gáy trên fanpage, chứ tôi không đủ trình thêm bớt một chữ nào. 
 <br>
-![support](https://github.com/LongBacktoNature/Toxic_divodivafan/blob/master/images/support.png?raw=true)
+![support](/images/jpg/support.jpg)
 <br>
 
 ## II. Các blog ?
@@ -104,7 +104,7 @@ Các fanpage nhỏ vẫn biết khiêm tốn, biết tự nhìn nhận sai lệc
 Đây, các bạn tự nhìn nhận đi chứ tôi không có nghĩa vụ phải dạy dỗ các bạn. 
 Một fanpage nhỏ vào tường đặt câu hỏi thảo luận. Rõ ràng kiến thức của các bạn sai bét nhưng không tự nhận mình sai, mà đi xúc phạm lại người ta.
 <br>
-![fanpage](https://vnohackintosh.com/img/hackintosh/etcher/etcher.png)
+![fanpage](/images/jpg/fanpage-healthy.jpg)
 <br>
 Nếu như còn chút liêm sỉ, các bạn nên ngừng đi chứ đừng tiếp tục cùn cối hỏi ngược lại rằng “tao sai ở chỗ nào”, nhé.
 <br>
@@ -130,11 +130,11 @@ Mà tôi thấy rất buồn cười. Cứ cho là họ toàn học sinh, còn n
 <br>
 Thêm một trò mèo này nữa, các bạn tự soi gương lại bản thân nhé. Cãi không lại người ta nên chui vào kênh của trường người ta, mà mách, giống ynhững đứa con nít chơi ô ăn quan thua cay cú nằm lăn ra ăn vạ.
 <br>
-![reportToxic](https://raw.githubusercontent.com/LongBacktoNature/Toxic_divodivafan/master/images/report-toxic.png)
+![reportToxic](/images/jpg/report-toxic.jpg)
 <br>
 Dĩ nhiên các bạn sẽ chày cối, chối bay chối biến, rồi chụp mũ tôi là clone của thằng đấy. Tôi chẳng thèm cãi, vì trò này của các bạn bày ra mà, có chày cối đến đâu thì sự thật vẫn sờ sờ đó.
 <br>
-![common](https://pbs.twimg.com/media/EVTDedLVAAA3iYB?format=jpg)
+![common](/images/jpg/common.jpg)
 <br>
 
 ## V. Lời cuối cùng
@@ -144,7 +144,7 @@ Lập tức, một vị admin kính mến nào đấy vào chửi, lăng mạ, �
 Sau cùng là bị xóa dấu vết, xóa sạch. Nên không có ai từ bên ngoài chọt chẹt vào nổi bến bãi của các bạn, họ chưa kịp mở mồm các bạn đã nhai đầu họ rồi.
 <br>
 
-##### Nhưng bài viết này, sẽ tồn tại nhan nhản. Chừng nào các bạn còn tạo thông tin nhảm sách nhiễu, phá game nền âm nhạc, chừng đó bài viết vẫn còn tồn tại để phá game các bạn.
+** Nhưng bài viết này, sẽ tồn tại nhan nhản. Chừng nào các bạn còn tạo thông tin nhảm sách nhiễu, phá game nền âm nhạc, chừng đó bài viết vẫn còn tồn tại để phá game các bạn. **
 <br>
 
 ####Và tôi THÁCH các bạn đánh sập được đấy.
