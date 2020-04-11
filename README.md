@@ -104,7 +104,7 @@ Các fanpage nhỏ vẫn biết khiêm tốn, biết tự nhìn nhận sai lệc
 Đây, các bạn tự nhìn nhận đi chứ tôi không có nghĩa vụ phải dạy dỗ các bạn. 
 Một fanpage nhỏ vào tường đặt câu hỏi thảo luận. Rõ ràng kiến thức của các bạn sai bét nhưng không tự nhận mình sai, mà đi xúc phạm lại người ta.
 <br>
-![fanpage](https://github.com/LongBacktoNature/Toxic_divodivafan/blob/master/images/fanpage-healthy.png?raw=true)
+![fanpage](https://raw.githubusercontent.com/LongBacktoNature/Toxic_divodivafan/master/images/fanpage-healthy.png)
 <br>
 Nếu như còn chút liêm sỉ, các bạn nên ngừng đi chứ đừng tiếp tục cùn cối hỏi ngược lại rằng “tao sai ở chỗ nào”, nhé.
 <br>
@@ -130,11 +130,11 @@ Mà tôi thấy rất buồn cười. Cứ cho là họ toàn học sinh, còn n
 <br>
 Thêm một trò mèo này nữa, các bạn tự soi gương lại bản thân nhé. Cãi không lại người ta nên chui vào kênh của trường người ta, mà mách, giống ynhững đứa con nít chơi ô ăn quan thua cay cú nằm lăn ra ăn vạ.
 <br>
-![reportToxic](https://github.com/LongBacktoNature/Toxic_divodivafan/blob/master/images/report-toxic.png?raw=true)
+![reportToxic](https://raw.githubusercontent.com/LongBacktoNature/Toxic_divodivafan/master/images/report-toxic.png)
 <br>
 Dĩ nhiên các bạn sẽ chày cối, chối bay chối biến, rồi chụp mũ tôi là clone của thằng đấy. Tôi chẳng thèm cãi, vì trò này của các bạn bày ra mà, có chày cối đến đâu thì sự thật vẫn sờ sờ đó.
 <br>
-![common](https://github.com/LongBacktoNature/Toxic_divodivafan/blob/master/images/common.png?raw=true)
+![common](https://raw.githubusercontent.com/LongBacktoNature/Toxic_divodivafan/master/images/common.png)
 <br>
 
 ## V. Lời cuối cùng
