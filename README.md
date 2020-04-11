@@ -139,6 +139,7 @@ Chẳng ai cấm các bạn cuồng idol. Tôi cũng cuồng CR7, cuồng Donald
     <li>Sự thật là: Sơn Tùng bị high larynx từ rất sớm, không biết cách support.</li>
     <li>Sự thật là: Hương Hồ (chị Hồ Quỳnh Hương) khi lên cao hơn nốt nhạc A#4 đã high larynx, tương tự với chị Hồng Nhung, nên support range của 2 người chỉ đến đó mà thôi.</li>
     <li>Sự thật là, Bùi Anh Tuấn chỉ có thể support đầy đặn trong quãng passagio của anh mà thôi. Ra khỏi passagio, BAT rất dễ drop support và vướng nhiều lỗi quan trọng. Cho dù BAT có từng support được F4 đi nữa, hiện tại BAT đã hỏng giọng và mất phong độ như thời The Voice 2012 vĩnh viễn.</li>
+    <li>Sự thật là, cả Vũ Cát Tường, Tóc Tiên, Bảo Anh đều thuộc giọng soprano. Vì làm sáng mix ở D#5/E5. Không phải cứ quãng giọng ngắn thì là Mezzo đâu. Giọng hát không dễ gì tiến hóa từ Mezzo lên Soprano hết.</li>
     <li>Sự thật là, Mỹ Tâm có trình độ thanh nhạc rất phát triển, vì chị chuyên tâm nâng cao đồng đều các kĩ năng, cũng như giọng hát support ổn định, đầy đặn, resonance xuất hiện nhiều và mạnh mẽ.</li>
 </ul>
 Nghe nói đời tư của Mỹ Tâm cũng rất xứng đáng với cái tên. Mà chỉ vì ghét fan cuồng Mỹ Tâm, tôi nhắc lại là bọn fan cuồng, thì “diva divo fan” các bạn nói xấu, dìm hàng, thậm chí chửi bới và xuyên tạc về Mỹ Tâm. Đó gọi là ti tiện đấy các bạn à.
