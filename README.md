@@ -297,10 +297,13 @@ Lập tức, một vị admin kính mến nào đấy vào chửi, lăng mạ, �
 Sau cùng là bị xóa dấu vết, xóa sạch. Nên không có ai từ bên ngoài chọt chẹt vào nổi bến bãi của các bạn, họ chưa kịp mở mồm các bạn đã nhai đầu họ rồi.
 <br>
 <br>
-<b>Nhưng bài viết này, sẽ tồn tại nhan nhản. 
+<span style="font-size: 15px">
+<b>
+Nhưng bài viết này, sẽ tồn tại nhan nhản. 
 Chừng nào các bạn còn tạo thông tin nhảm sách nhiễu, phá game nền âm nhạc, chừng đó bài viết vẫn còn tồn tại để phá game các bạn.
 </b>
+  </span>
 <br>
-<p>
-  <h2 text-align = center>Và tôi THÁCH các bạn đánh sập được đấy.</h2>
+<p text-align: center>
+  <h2 text-align: center>Và tôi THÁCH các bạn đánh sập được đấy.</h2>
 </p>
