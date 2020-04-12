@@ -302,5 +302,5 @@ Chừng nào các bạn còn tạo thông tin nhảm sách nhiễu, phá game n�
 </b>
 <br>
 <p>
-  <h2>####Và tôi THÁCH các bạn đánh sập được đấy.</h2>
+  <h2 text-align = center>Và tôi THÁCH các bạn đánh sập được đấy.</h2>
 </p>
