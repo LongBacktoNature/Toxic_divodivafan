@@ -96,6 +96,7 @@ Passagio của Bằng Kiều, có nói ra các bạn cũng cóc hiểu.
 <br>
 Còn đây nữa: Đông Nhi là Mezzo Soprano ? Tôi rất cần một ai đó trong showbiz hoặc nhạc viện đính chính điều này, để <b>động diva fan</b> các bạn bớt gáy đi.
 <br>
+<br>
 <p>
     <img src="https://github.com/LongBacktoNature/Toxic_divodivafan/blob/master/images/jpg/Nhi-mezzo.jpg?raw=true" />
 </p>
