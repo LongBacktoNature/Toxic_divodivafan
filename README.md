@@ -303,6 +303,6 @@ Sau cùng là bị xóa dấu vết, xóa sạch. Nên không có ai từ bên n
   </b>
 </span>
 <br>
-<p text-align: center>
-  <h2 text-align: center>Và tôi THÁCH các bạn đánh sập được đấy.</h2>
+<p>
+  <h2 style="text-align: center;">Và tôi THÁCH các bạn đánh sập được đấy.</h2>
 </p>
