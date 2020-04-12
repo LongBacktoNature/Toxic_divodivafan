@@ -79,7 +79,7 @@ Support mỗi dòng nhạc khác nhau là định nghĩa tầm bậy của độ
 <br>
 <br>
 Thứ 2, các bạn phân loại giọng hát ca sĩ cũng sai bét. Thà đừng phân loại, còn hơn đã làm sai mà vẫn lớn lối đăng lên kênh thông tin lớn như thế. Đây, tấm hình này là sản phẩm của các bạn, lối ăn nói đặc trưng không lẫn vào đâu được. Biết đâu sau này có xóa/edit lại, nên mới cần tấm hình làm bằng chứng.
-<br>
+<br><br><br>
 <p>
     <img src="https://github.com/LongBacktoNature/Toxic_divodivafan/blob/master/images/jpg/leggiero.jpg?raw=true" />
 </p>
@@ -106,7 +106,7 @@ Tôi chẳng thèm đợi điều đó để làm bằng chứng cãi nhau kiể
 <br>
 Nhưng điều khủng khiếp hơn, là cái mà tôi ngán nhất, đó là việc các bạn không phân biệt nổi dấu hiệu <b>high larynx/low larynx</b>. 
 Cộng thêm ảo tưởng ban đầu về support, các bạn cũng phán <i>Sơn Tùng M-TP biết support, mà còn support đến A4</i> (kinh hồn chưa ?).
- <br>
+ <br><br>
 <p>
     <img src="https://github.com/LongBacktoNature/Toxic_divodivafan/blob/master/images/jpg/M-TP.jpg?raw=true" />
 </p>
@@ -121,6 +121,7 @@ Tôi không dìm Sơn Tùng, anh ta rất tài năng. Nhưng để đánh giá c
 <br>
 Còn 1 cái rất bựa: các bạn thường đo sai nốt nhạc, nhưng khi có người phát hiện ra thì lập tức bị xóa sạch. 
 Nhưng các bạn đã quên xóa đoạn này:
+<br><br>
 <p>
     <img src="https://github.com/LongBacktoNature/Toxic_divodivafan/blob/master/images/jpg/G-4=E.jpg?raw=true" />
 </p>
@@ -202,7 +203,7 @@ Về các rank xếp hạng. Tôi không luyên thuyên chi tiết, chỉ biết
 <br>
 Bê nguyên si sang thì đúng là có phiến diện, nhưng thay vì đóng góp cho họ xem xét lại một cách văn minh, thì các bạn dùng lời lẽ vô văn hóa. Cụ thể như thế nào thì các bạn là tác giả những câu chửi, các bạn tự soi gương lấy. 
 <br>Tôi không "tha" những lời lẽ bẩn thỉu ấy lên đây, tôi chỉ dẫn ra bài gốc:
-<br>
+<br><br><br>
 <p>
     <img src="https://github.com/LongBacktoNature/Toxic_divodivafan/blob/master/images/jpg/common.jpg?raw=true" />
 </p>
@@ -230,7 +231,16 @@ Tôi đọc các bãi rác trên fanpage của các bạn là tôi đã chán ng
 Đó là cùng kiến thức nền tảng. Ít nhiều có đúng sai, không ai là hoàn hảo, nhưng tối thiểu nó khớp với các giáo trình thanh nhạc. Định nghĩa chuẩn về breath support, neutral larynx, placement. 
 <br>
 <br>
-Blog, fanpage cỡ nhỏ, và một vài channel youtube về vocal sử dụng kiến thức nền nêu trên, thì động “divo diva fan” quy chụp họ copy nhau. Copy hay gì tôi không dám chắc, chỉ thấy mỗi kênh phân tích một đối tượng ca sĩ khác nhau, copy chỗ nào vậy ?
+Blog, fanpage cỡ nhỏ, và một vài channel youtube về vocal sử dụng kiến thức nền nêu trên, thì động “divo diva fan” quy chụp họ copy nhau. Copy hay gì tôi không dám chắc, chỉ thấy mỗi kênh phân tích một đối tượng ca sĩ khác nhau. 
+<br><br>
+Nếu các fanpage nhỏ đấy copy ý tưởng của các blog nhưng không ghi nguồn, họ đáng bị phê phán, nhưng đồng thời cũng chúc mừng "<i>động diva fan</i>" các bạn vừa làm một chuyện công cốc.
+<br>
+Vì sao ư ? Họ tôn trọng sự thật về ca sĩ, về chuyên môn, họ không xuyên tạc thêm bớt một cách tùy tiện và nặng cảm tính như "động diva fan" các bạn hay tung hô idol mù quáng. Tôi đoán rằng do họ lười, tập trung vào đối tượng phân tích mới, nên đạo ý tưởng các bài viết sẵn có. 
+<br>
+Hành động này có xấu đi chăng nữa cũng thua xa động diva fan.
+<br>
+<br>
+Các fanpage viết theo một kiến thức quy chuẩn, support phải lấy hơi từ cơ hoành, thì mọi nguồn phân tích khác cũng như thế, có chăng là khác cách hành văn. Hay các bạn muốn họ phải viết "support được lấy hơi từ cơ háng" như style của các bạn ? Thể loại style trẻ trâu không lẫn đi đâu được.
 <br>
 <br>
 Tôi không rõ kiến thức của “diva divo fan” thượng đẳng đến đâu, nhưng các bạn nhận xét về support hoàn toàn sai bét thì tôi biết nên tin ai bây giờ ?
@@ -245,7 +255,7 @@ Các fanpage nhỏ vẫn biết khiêm tốn, biết tự nhìn nhận sai lệc
 <br>
 Đây, các bạn tự nhìn nhận đi chứ tôi không có nghĩa vụ phải dạy dỗ các bạn. 
 Một fanpage nhỏ vào <b>"động diva fan"</b> đặt câu hỏi thảo luận. Rõ ràng kiến thức của các bạn sai bét nhưng không tự nhận mình sai, mà đi xúc phạm lại người ta.
-<br>
+<br><br><br>
 <p>
     <img src="https://github.com/LongBacktoNature/Toxic_divodivafan/blob/master/images/jpg/fanpage-healthy.jpg?raw=true" />
 </p>
@@ -272,7 +282,7 @@ Mà tôi thấy rất buồn cười. Cứ cho là họ toàn học sinh, còn n
 <br>
 <br>
 Thêm một trò mèo này nữa, các bạn tự soi gương lại bản thân nhé. Cãi không lại người ta nên chui vào kênh của trường người ta, mà mách, giống ynhững đứa con nít chơi ô ăn quan thua cay cú nằm lăn ra ăn vạ.
-<br>
+<br><br><br>
 <p>
     <img src="https://github.com/LongBacktoNature/Toxic_divodivafan/blob/master/images/jpg/report-toxic.jpg?raw=true" />
 </p>
