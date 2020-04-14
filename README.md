@@ -155,7 +155,7 @@ Tung hê thần tượng chưa đủ, các bạn sinh ra đủ thứ thuật ng�
 Tự hào về âm nhạc nước nhà là tốt, nhưng đừng có cuồng mà đi dìm hàng và nói xấu nước ngoài. Các bạn đang nói tiếng Việt đấy, sống cho có văn hóa đi.
 <br>
 <br>
-Việt Nam với nền kinh tế trung bình mà đã có mặt bằng kĩ thuật thanh nhạc ổn, phát triển đến hôm nay là rất đáng tự hào rồi. Còn ở Hàn Quốc, lĩnh vực thanh nhạc của họ đặc biệt tiến bộ, kĩ thuật thanh nhạc như một môn mà mọi ca sĩ đều hướng tới và trau dồi, chứ không chỉ dành riêng dân thính phòng như ở Việt Nam.
+Việt Nam với nền kinh tế trung bình mà đã có mặt bằng kĩ thuật thanh nhạc ổn, phát triển đến hôm nay là rất đáng tự hào rồi. Còn ở Hàn Quốc, lĩnh vực thanh nhạc của họ đặc biệt tiến bộ,  như một môn mà mọi ca sĩ đều hướng tới và trau dồi, chứ không chỉ dành riêng dân thính phòng như ở Việt Nam.
 <br>
 <br>
 Tôi không quan tâm xứ Hàn sống lỗi hay bê bối ra sao. Riêng về kĩ thuật thanh nhạc thuần túy, xứ ta còn phải học hỏi họ. Giống như lý thuyết về opera phải học hỏi nước Ý, công nghệ phải học tập Đức và Nga, kĩ thuật làm hàng fake phải học hỏi Tung Của.
@@ -168,7 +168,7 @@ Sao các bạn trẻ ranh vậy ?
 Tôi không muốn quan tâm các bạn bày trò gì, nhưng đừng có làm lệch lạc kiến thức và làm hại đến các newbie mới học thanh nhạc. Họ học trên mạng chứ không có điều kiện học chính thống. Thay vì để yên cho newbie luyện thanh từ từ theo mẫu, các bạn cho họ ăn bánh vẽ về “mix cao như Bùi Anh Tuấn, hát to như các mợ diva”, và vô tình khiến họ luyện thanh sai bét.
 <br>
 <br>
-Các bạn cổ vũ cho newbie gào to theo kiểu sướng tai, khiến các newbie thẩm du tư tưởng giống y như nhau. Các bạn có chịu trách nhiệm khi cổ họng và thanh quản người ta bị tổn thất không ? Hát sai kĩ thuật, gào tú, giọng không nát ngay lập tức, mà nó tàn phá từ từ. 
+Các bạn cổ vũ cho newbie gào to theo kiểu sướng tai, khiến các newbie thẩm du tư tưởng giống y như nhau. Các bạn có chịu trách nhiệm khi cổ họng và thanh quản người ta bị tổn thất không ? Hát sai kĩ thuật, gào lú, giọng không nát ngay lập tức, mà nó tàn phá từ từ. 
 <br>
 <br>
 Trường hợp tổn thương giọng hát thì nhiều ví dụ lắm. Tiêu biểu là Bùi Anh Tuấn có stamina ổn, và NÊN NHỚ RẰNG Bùi Anh Tuấn có kĩ thuật nền vững chắc. Nghe fan cuồng tung hê quá, đi hát leo toàn quãng 5, và giọng đã hỏng dần dần sau 5 năm. Thì mấy cái cổ họng yếu nhớt của các bạn newbie liệu chịu đựng được bao lâu ?
@@ -204,7 +204,7 @@ Về các rank xếp hạng. Tôi không luyên thuyên chi tiết, chỉ biết
 <br>
 Bê nguyên si sang thì đúng là có phiến diện, nhưng thay vì đóng góp cho họ xem xét lại một cách văn minh, thì các bạn dùng lời lẽ vô văn hóa. Cụ thể như thế nào thì các bạn là tác giả những câu chửi, các bạn tự soi gương lấy. 
 <br>Tôi không "tha" những lời lẽ bẩn thỉu ấy lên đây, tôi chỉ dẫn ra bài gốc:
-<br><br><br>
+<br><br>
 <p>
     <img src="https://github.com/LongBacktoNature/Toxic_divodivafan/blob/master/images/jpg/common.jpg?raw=true" />
 </p>
@@ -220,9 +220,10 @@ Có thể tôi cho họ là mọt sách. Về truyền thông, bầy đàn, mồ
 À mà về trình độ, tôi cũng không dám khen họ cao siêu, chỉ nhận thấy họ nghe nốt nhạc rất chuẩn và đánh giá các lỗi kĩ thuật cũng như ưu khuyết điểm cũng rất chuẩn.
 <br>
 <br>
-Một điều quan trọng khi newbie đọc các blog đó: những khuyết điểm về kĩ thuật của ca sĩ. Khi kĩ thuật của ca sĩ nào mà họ đã đánh giá bị mất phong độ, họ rất chịu khó theo dõi và update lại, kèm theo những ghi chú có giá trị. 
-Tôi không dám chắc họ có âm mưu dìm hàng ca sĩ nào chưa, nhưng các thông tin này rất có lợi cho newbie khi luyện tập. 
+Một điều quan trọng khi newbie đọc các blog đó: những khuyết điểm về kĩ thuật của ca sĩ. Khi kĩ thuật của ca sĩ nào mà họ đã đánh giá bị mất phong độ, họ rất chịu khó theo dõi và update lại, kèm theo những ghi chú có giá trị. Đó đều rất có lợi cho newbie khi luyện tập. 
 Cả những người biểu diễn ca hát nghiệp dư cũng cần và nên trau dồi.
+<br><br>
+Rảnh rỗi ở không sao các bạn không nên trau dồi kiến thức và tự nhìn nhận sai trái đi ? Làm fan cuồng,, suốt ngày cà khịa đâm chọt không làm các bạn giỏi lên đâu.
 <br>
 
 ## III. Và các fanpage tạm gọi là “đối thủ”:
